@@ -1,2 +1,2 @@
 # mis-proyectos
-lugar para guardar mis proyectos actuales y futuros 
+espero estar usando bien este sitio jeje
